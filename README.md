@@ -1,0 +1,1 @@
+# shopmanagement.github.io
